@@ -25,7 +25,7 @@ text
   
 <details>
 <summary><b> ᴇxᴛʀᴀ ༘⋆ </b></summary>
-text here
+ᴍʏ ʙᴏᴜɴᴅᴀʀʏ! ⠀:
   </details>
 
 
