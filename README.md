@@ -15,7 +15,7 @@ text
     
   
 <details>
-<summary><b> change name here </b></summary>
+<summary><b> ᴇxᴛʀᴀ ༘⋆ </b></summary>
 text here
   </details>
 
