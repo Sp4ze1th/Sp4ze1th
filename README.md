@@ -28,7 +28,7 @@ text
     
   
 <details>
-<summary><b> ᴇxᴛʀᴀ ༘⋆ </b></summary>
+<summary><b> ᴇxᴛʀᴀ ꩜ </b></summary>
 ᴍʏ ʙᴏᴜɴᴅᴀʀʏ !⠀⠀ :
   </details>
 
